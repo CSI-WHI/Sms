@@ -1,2 +1,1 @@
-# Sms
-Terima kasih CSI AND WHI
+### BRUTAL SMS IS BACK
